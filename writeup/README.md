@@ -1,1 +1,1 @@
-Moved to my website <https://stromlarsen.com/2026/08/11/translator-not-clanker/>
+Moved to my website <https://stromlarsen.com/2025/08/31/translator-not-clanker/>
